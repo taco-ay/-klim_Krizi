@@ -1,1 +1,1 @@
-# -klim_Krizi
+# -klim_Krizi  belli başlı bölgenin (tr harıtası) geçmiş ve su anda olanlarla alakalı makaleler ve har yardım eden kimse ve test tabi grafik ve görselli mörseli  trde olussa şehirlere tıklayarak harıtada o sayfanın çıkması
